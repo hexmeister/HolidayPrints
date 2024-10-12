@@ -1,3 +1,3 @@
 Holiday Prints
 
-Holiday 3D-Printed Stuff
+3D-Printed Holiday Stuff
